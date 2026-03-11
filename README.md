@@ -50,7 +50,5 @@
 [结语.... 456](#_Toc218761047)
 
  
-<img width="432" height="632" alt="image" src="https://github.com/user-attachments/assets/93a6851e-3d78-492b-ad76-8f2ae4704750" />
-
 
 ![计算叙事封面设计](https://user-images.githubusercontent.com/543384/195963998-5bf63724-99f2-4934-a709-84500d5e705e.jpg)
